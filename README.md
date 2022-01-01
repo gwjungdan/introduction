@@ -1,4 +1,3 @@
 # introduction
-introduction
 
-Open on January 1st
+Open on New Year's Day 2022
